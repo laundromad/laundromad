@@ -1,4 +1,4 @@
-I hope we become friends :)
+JoJo >>>
 
 <!---
 laundromad/laundromad is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
